@@ -1,5 +1,15 @@
 - 👋 Hi, I’m @darlebejollie
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...rights
+collect now
+for all involved
+end
+end
+end
+end
+end
+r\end
+ddd/end
+
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
